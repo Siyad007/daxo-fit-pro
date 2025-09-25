@@ -1,3 +1,7 @@
+<img width="1918" height="975" alt="Screenshot 2025-09-25 120932" src="https://github.com/user-attachments/assets/d9477180-995e-4b9a-bbaa-1d561587a3fc" />
+<img width="1919" height="987" alt="Screenshot 2025-09-25 120942" src="https://github.com/user-attachments/assets/9753058f-e6f7-471c-aa68-5e3614d865c3" />
+
+
 Daxo-Fit-Pro 🏋️‍♂️🍎
 
 Overview
